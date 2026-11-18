@@ -1,4 +1,3 @@
-
 # Hi, I'm Jilodsan Rajgiry
 
 **Electronics & Telecommunication Engineering Undergraduate**  
